@@ -15,3 +15,5 @@ As Edward Norton said:
 
 > It's dismaying to see the unilateralism that the government is doing.
 > Read more at https://www.brainyquote.com/authors/edward-norton-quotes
+
+<img source="http://cdn30.us1.fansshare.com/image/edwardnorton/edward-norton-quotes-from-fight-club-film-wallpaper-fight-club-101729763.jpg"/>
