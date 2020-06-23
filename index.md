@@ -10,3 +10,8 @@ Born in Massachusetts and raised in Maryland, Norton was drawn to theatrical pro
 * charismatic
 * married
 * cult
+
+As Edward Norton said:
+
+> It's dismaying to see the unilateralism that the government is doing.
+> Read more at https://www.brainyquote.com/authors/edward-norton-quotes
